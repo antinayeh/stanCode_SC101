@@ -1,5 +1,5 @@
 ## stanCode SC101 Projects 
-Watch my demo videos [Here](https://drive.google.com/drive/folders/18FRJUFvKyPWyn31S6toi5NxKeBtfm32Q?usp=sharing)
+Watch my demo videos [Here](https://drive.google.com/drive/folders/18FRJUFvKyPWyn31S6toi5NxKeBtfm32Q?usp=sharing)!
 
 
 
